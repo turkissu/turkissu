@@ -22,4 +22,4 @@ Computer Science Student | AI & Data Enthusiast | Python Developer | Saudi Arabi
 ---
 
 ## 📫 Connect with me
-- [LinkedIn](https://www.linkedin.com/in/turki-alsohaibani)
+- [LinkedIn](https://www.linkedin.com/in/turki-alsohaibani-785536244/)
